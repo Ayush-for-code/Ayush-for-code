@@ -2,7 +2,7 @@
 - 👀 I’m interested in webdevelopment. 
 - 🌱 I’m currently learning and try to always stay eager to learn 
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me at my email - ayushbhardwajgdr@gmail.com
+- 📫 you can contact me at my email - ayushbhardwajgdr@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - 💪🏼 I am excited to learn more concepts about webdevelopment.
